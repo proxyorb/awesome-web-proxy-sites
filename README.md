@@ -1,4 +1,4 @@
-# Awesome Web Proxy Sites
+# Awesome Web Proxy Sites: Best Free Web Proxy Sites in 2026
 
 
 Web-based proxy tools have never really disappeared.
